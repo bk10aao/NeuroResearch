@@ -6,4 +6,4 @@
 
 #### 2. From Memory Loss to Mastery: Procedural Learning in Transient Epileptic Amnesia and Frontal Encephalomalacia Post Traumatic Brain Injury
 
-[From Memory Loss to Mastery: Procedural Learning in Transient Epileptic Amnesia and Frontal Encephalomalacia Post Traumatic Brain Injury](https://raw.githubusercontent.com/bk10aao/NeuroResearch/master/From_Memory_Loss_to_Mastery__Procedural_Learning_in_Transient_Epileptic_Amnesia_and_Frontal_Encephalomalacia_Post_Traumatic_Brain_Injury/From_Memory_Loss_to_Mastery__Procedural_Learning_in_Transient_Epileptic_Amnesia_and_Frontal_Encephalomalacia_Post_Traumatic_Brain_Injury.pdf)
+[From Memory Loss to Mastery: Procedural Learning in Transient Epileptic Amnesia and Frontal Encephalomalacia Post Traumatic Brain Injury(PDF)](https://raw.githubusercontent.com/bk10aao/NeuroResearch/master/From_Memory_Loss_to_Mastery__Procedural_Learning_in_Transient_Epileptic_Amnesia_and_Frontal_Encephalomalacia_Post_Traumatic_Brain_Injury/From_Memory_Loss_to_Mastery__Procedural_Learning_in_Transient_Epileptic_Amnesia_and_Frontal_Encephalomalacia_Post_Traumatic_Brain_Injury.pdf)
